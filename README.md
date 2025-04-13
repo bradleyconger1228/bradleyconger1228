@@ -1,6 +1,6 @@
-- I am an accomplished logistics professional and U.S. Army veteran with 10 years of dedicated service specializing in strategic logistics operations and management.
-- Currently, I am advancing my expertise at The College of William & Mary, where I am concurrently pursuing a Master of Science in Business Analytics and an MBA.
-- I hold a Bachelor’s degree in Cybersecurity Policy and Management from the University of Maryland Global Campus, highlighting my strong foundation in technology and security management.
+I am an accomplished logistics professional and U.S. Army veteran with 10 years of dedicated service specializing in strategic logistics operations and management.
+Currently, I am advancing my expertise at The College of William & Mary, where I am concurrently pursuing a Master of Science in Business Analytics and an MBA.
+I hold a Bachelor’s degree in Cybersecurity Policy and Management from the University of Maryland Global Campus, highlighting my strong foundation in technology and security management.
 
 Driven by my passion for strategy consulting, I leverage my analytical skills, strategic mindset, and leadership experiences to tackle complex business challenges and develop actionable insights. 
 My interests span multiple domains, reflecting my versatile and dynamic approach to problem-solving and innovation.
